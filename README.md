@@ -1,5 +1,7 @@
 # 💫 About Me:
-- Websites<br>- Vibecode shit<br>- Lazy
+- Websites
+- Vibecode shit
+- Lazy
 
 
 ## 🌐 Socials:
